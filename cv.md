@@ -4,7 +4,7 @@
 
 - tel.: +7-(981)-741-67-33
 - email: kskrheh@gmail.com
-- telegram: https://t.me/kskrheh
+- telegram: @kskrheh
 
 ## About me
 
